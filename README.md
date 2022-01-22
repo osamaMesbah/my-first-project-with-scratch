@@ -1,2 +1,2 @@
-# my-first-project-with-scrathc
+# my-first-project-with-scratch
 i made this , wooooooooooooooow!
